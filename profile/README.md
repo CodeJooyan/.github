@@ -3,9 +3,7 @@
 
 ❤️ We are here to progress together </br>
 📝 We are always ready to face problems anywhere </br>
-🧐 Currently we are working on Rah Academy </br>
-🤓 We love learning and gaining experience </br>
-✅ You can easily become a member of our group
+🤓 We love learning and gaining experience <
 
 </hr>
 
